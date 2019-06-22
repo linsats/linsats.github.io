@@ -1,1 +1,0 @@
-# linsats.github.io
